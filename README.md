@@ -35,6 +35,7 @@ Podsumowanie jak żyć Świat 2000 i 3000.
 -Wszędzie bloki i rozległe miasta ciasnota 
 -Co powie gazeta to jest to święta prawda
 -Jak nie masz kogoś do sexu to kupujesz drukarkę i AI i generujesz kobietę z komputera lub chodujesz we wanie
+-Malinka zostawiona przez kobietą na szyi po udanej nocy bez słów to jej znak rozpoznawczy
 -Integracja z AI.
 Nanotechnologia i IT to szczy techniki i cały czas się rozwija Hedonizm. Wiara w Elo budowniczego. 
 
@@ -52,6 +53,7 @@ Nanotechnologia i IT to szczy techniki i cały czas się rozwija Hedonizm. Wiara
 -Zamiłowanie do sprzętów lampowych 
 -Brak popychaczy stada, samodzielność w myśleniu 
 -Zasiłki i praca na etacie a pieniędzy starcza bez szukania 2 etatu 
+-Słyne to ja twoje przeznaczenie mnie szukasz a on mówi tak miłości moja
 -Klasyczne podejście medyczne skalpel lub różdżka pottera, dla ciemnoty tylko skalpel bo nic lepszego nie ma.
 Koło to szczyt technologi i wiara w cierpienie. Wiara w Him panią sów i koszmarów. 
 
