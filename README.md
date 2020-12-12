@@ -10,7 +10,7 @@ Podsumowanie jak żyć Świat 2000 i 3000.
 -Wieżowce
 -Lewitujące auta
 -Chipy 
--Samotność, używki, sex, apatia to normalność
+-Samotność, używki, sex, apatia to normalność milenialsi choroba psychiczna ludzi 3000
 -Jak nie nosisz skóry jesteś 0, jak założysz wełnę to cię zwyzywają z jakich czasów jesteś
 -Ekologia to coś nie znanego
 -Sport mu piłka nożna i awantury 11 listopada lub dostaniesz w łeb bo niszczysz zasady ziemskiego żywotu w grupie sterowanej przez popychaczy stada 
