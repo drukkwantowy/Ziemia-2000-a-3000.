@@ -32,6 +32,7 @@ Podsumowanie jak żyć Świat 2000 i 3000.
 -Wszędzie bloki i rozległe miasta ciasnota 
 -Co powie gazeta to jest to święta prawda
 -Integracja z AI.
+Nanotechnologia i IT to szczy techniki i cały czas się rozwija Hedonizm.
 
 Świat 2000
 -Rodziny dom 
@@ -48,3 +49,4 @@ Podsumowanie jak żyć Świat 2000 i 3000.
 -Brak popychaczy stada, samodzielność w myśleniu 
 -Zasiłki i praca na etacie a pieniędzy starcza bez szukania 2 etatu 
 -Klasyczne podejście medyczne skalpel lub różdżka dla ciemnoty tylko skalpel bo nic lepszego nie ma.
+Koło to szczyt technologi i wiara w cierpienie.
