@@ -55,4 +55,4 @@ Nanotechnologia i IT to szczy techniki i cały czas się rozwija Hedonizm. Wiara
 -Klasyczne podejście medyczne skalpel lub różdżka pottera, dla ciemnoty tylko skalpel bo nic lepszego nie ma.
 Koło to szczyt technologi i wiara w cierpienie. Wiara w Him panią sów i koszmarów. 
 
-Ludziom nawet jak napiszesz książkę z chronowizora która specjalnym kodem mówi im o przyszłości i tym co może być to i tak będą toczyć koła i szukać czegoś innego niż to co im stwórca mówi. 
+Ludziom nawet jak napiszesz książkę z chronowizora która specjalnym kodem mówi im o przyszłości i tym co może być to i tak będą toczyć koła i szukać czegoś innego niż to co im stwórca mówi. Człowiekowi trzeba napisać dokładną instrukcję edukacyjną jak tępej sieci neuronowej która nie potrafi myśleć i uczy się na błędach i dopiero z tych błędów wyniknie nauka dla ludzi która będzie dla nich święta. Aby zapisać całą mądrość ludzkości i tego co wiem ja wystarczy zapisać wiedzę na 512 GB błędy i dobre rozwiązania w AI sieci. A mi nie truć dupy. Jak spotkacie dziwną cywilizacje sprzedajcie im AI. 
