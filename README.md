@@ -54,3 +54,5 @@ Nanotechnologia i IT to szczy techniki i cały czas się rozwija Hedonizm. Wiara
 -Zasiłki i praca na etacie a pieniędzy starcza bez szukania 2 etatu 
 -Klasyczne podejście medyczne skalpel lub różdżka pottera, dla ciemnoty tylko skalpel bo nic lepszego nie ma.
 Koło to szczyt technologi i wiara w cierpienie. Wiara w Him panią sów i koszmarów. 
+
+Ludziom nawet jak napiszesz książkę z chronowizora która specjalnym kodem mówi im o przyszłości i tym co może być to i tak będą toczyć koła i szukać czegoś innego niż to co im stwórca mówi. 
