@@ -64,3 +64,4 @@ A potem powstanie pokolenie 5000 łączące wartości pokolenia 2000 i 3000 i b�
 O czym marzą 2 dusze z lat 5000 oddalone od siebie o 3000 lat? O połączeniu fantasy z S-F i miłości. Zapalcie se fajkę pokoju i wymyślcie coś od nowa. 
 Jak z koronawirusem i Prokiem wrabiacie w akcje pójdź na wojnę i giń za słowa pety.
 Baba wanga była jak Jezus poetą za którym tabuny kretynów poszło za ich słowem a to słowo się spełniło. Socjotechnika. 
+Na czerpanie pomysłów na pokolenie 5000 do roku 2050 najlepiej nadają się pomysły ze sztuki Deus Ex, Star wars, Prototype, Thief. 
