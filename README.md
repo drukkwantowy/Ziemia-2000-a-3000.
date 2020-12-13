@@ -63,3 +63,4 @@ Jak powie osoba z roku 2000? „Życie bez świąt jest tak nudne jak podsumowan
 A potem powstanie pokolenie 5000 łączące wartości pokolenia 2000 i 3000 i będą toczyć koła a Moly będzie ciekawą lekturą a HP przejdzie do legendy jako super przykład. Pokolenie łączące wartości pokolenia 2000 i 3000 fantasy i SF. Co za romantyzm ludzie będą mówić gestami, darem, czy 1 słowem. Powstanie koło wzajemnej adoracji i masturbacji. Czarne i białe zleje się z tęczą. Co za połączenie. Ludzie kochają toczyć koła od mroku po tęcze od tęczy po mrok i tak w koło. 
 O czym marzą 2 dusze z lat 5000 oddalone od siebie o 3000 lat? O połączeniu fantasy z S-F i miłości. Zapalcie se fajkę pokoju i wymyślcie coś od nowa. 
 Jak z koronawirusem i Prokiem wrabiacie w akcje pójdź na wojnę i giń za słowa pety.
+Baba wanga była jak Jezus poetą za którym tabuny kretynów poszło za ich słowem a to słowo się spełniło. Socjotechnika. 
