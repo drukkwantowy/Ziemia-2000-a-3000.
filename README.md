@@ -66,3 +66,4 @@ Jak z koronawirusem i Prokiem wrabiacie w akcje pójdź na wojnę i giń za sło
 Baba wanga była jak Jezus poetą za którym tabuny kretynów poszło za ich słowem a to słowo się spełniło. Socjotechnika. 
 Na czerpanie pomysłów na pokolenie 5000 do roku 2050 najlepiej nadają się pomysły ze sztuki Deus Ex, Star wars, Prototype, Thief. 
 Lepszym pomysłem jest integracja DNA z AI jakomś mutacją która da paranormalne zdolności nie takie zdolności jak ma żaba co je robale bo to nie wyczyn a jakaś telekineza, lewitacja, odporne ciało, holografia, replikacja, panowanie nad czasem teleportacja czy przenoszenie się w czasie.      
+Normalni ludzie będą z tego szydzić. Normalnym ludziom wystarczy tylko układ scalony do uzdrawiania czy roszerzenia możliwości jak programator lub zegarek dający pewne właściwości. 
