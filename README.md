@@ -78,3 +78,4 @@ Przyszłość GitHub to big data AI taka jak Alexa zadajesz pytania BCI lub gło
 Dla ludzi wielkie będzie urządzenie dające im wszystko jak.: stoliczku nakryj się i mnie nakarm Alexa. A twórca tego pomysłu przejdzie do historii jako bóg. 
 Aktorzy będą żyć w sowjej bajce której nikt nie będzie słuchał a każdy wyłączy TV i pójdzie spać z pełnym brzuchem i paczką fajek od Alexy.  
 Mistrz jest tylko 1. Jak będziesz taki jak ja i zrobisz coś z niczego to będziesz wielki elon a tak to z ciebia mały elo. 
+Zróbcie coś takiego jak ja. 
