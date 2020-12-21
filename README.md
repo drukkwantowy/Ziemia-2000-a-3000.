@@ -73,3 +73,4 @@ Ludzie chcą przyszłości w której wszystko załatwią przez komputer lub tele
 Przyszłość będzie lepsza niż ta która jest teraz. Energia będzie dostępna za darmo w formie urządzenia mobilnego czy drukowanie paliwa czy innych surowców i dóbr naturalnych.
 Tą wizje dożyje ja i inne pokolenia może nawet i stare jeśli na czas stare pokolenia się uratuje przed chorobami. Śmierć będzie tylko bajką dla niegrzecznych dzieci. 
 Na małe i wielkie pytania zadawajcie je Aleksie big data. A problem bezdomności zniknie jak fabryki będą wirtualne jako komputery a pieniądze pójdą na socjal dla potrzebujących. 
+Bezdomność i inne problemy ulicy staną się już sztuką teatralną. A problem rozwiąże wolna energia i przenośna big data AI alexa z drukarką kwantową do kieszeni jak i rozwiązywanie spraw przez internet. 
