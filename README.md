@@ -77,3 +77,4 @@ Bezdomność i inne problemy ulicy staną się już sztuką teatralną. A proble
 Przyszłość GitHub to big data AI taka jak Alexa zadajesz pytania BCI lub głosem i dostajesz odpowiedzi na istniejących zbiorach lub AI generuje nowe zbiory automatycznie. Za miast pisać nowe zbiory danych i kodu zaprojektował bym uniwersalną AI która korzysta z istniejących zbiorów danych i internetu i generuje to czego nie ma aby było 100% technologii przyszłości wystarczy opracować wygenerować listę tego czego nie ma na bazie sztuki lub innej wiedzy.
 Dla ludzi wielkie będzie urządzenie dające im wszystko jak.: stoliczku nakryj się i mnie nakarm Alexa. A twórca tego pomysłu przejdzie do historii jako bóg. 
 Aktorzy będą żyć w sowjej bajce której nikt nie będzie słuchał a każdy wyłączy TV i pójdzie spać z pełnym brzuchem i paczką fajek od Alexy.  
+Mistrz jest tylko 1. Jak będziesz taki jak ja i zrobisz coś z niczego to będziesz wielki elon a tak to z ciebia mały elo. 
