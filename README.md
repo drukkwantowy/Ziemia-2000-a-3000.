@@ -79,3 +79,4 @@ Dla ludzi wielkie będzie urządzenie dające im wszystko jak.: stoliczku nakryj
 Aktorzy będą żyć w sowjej bajce której nikt nie będzie słuchał a każdy wyłączy TV i pójdzie spać z pełnym brzuchem i paczką fajek od Alexy.  
 Mistrz jest tylko 1. Jak będziesz taki jak ja i zrobisz coś z niczego to będziesz wielki elon a tak to z ciebia mały elo. 
 Zróbcie coś takiego jak ja. 
+Wy dużo pierdolicie na tedzie. Zobaczcie ile ja sam zrobiłem z tego co wy już macie. Wyprodukujcie to co wam mówie a ludzkie problemy się skończą. A teraz bogaci do roboty. A jak coś pytać AI o pomysły. 
